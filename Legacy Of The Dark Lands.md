@@ -15,6 +15,8 @@
 
 + още 200 от кредит, ако се наложи! = 1200 общо
 
+- 10% discount
+
 = в най-минимален случай: 1 super special edition, 3 special vinyl edition-a и 4 винила/2x2
 
 
