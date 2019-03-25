@@ -11,14 +11,13 @@
 
 
 = 1010 общо
-= 12 винила и един CD Special Edition = First Wave
 
-+ още 200 от кредит, ако се наложи! = 1200 общо
++ още 400 от кредит, ако се наложи! = 1400 общо
 
 - 10% discount
 
 = в най-минимален случай: 1 super special edition, 3 special vinyl edition-a и 4 винила/2x2
-
++ 1 Beyond The Red Mirror(40лв) and 2x2 Demons And Wizards(210лв) = 250 за тези неща и 1150 за оркестралния.
 
 2-nd Wave = ? = Кредит = макс още 5 винила = още 350 кинта
 
