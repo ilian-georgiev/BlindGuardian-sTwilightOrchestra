@@ -16,8 +16,8 @@
 
 - 10% discount
 
-= в най-минимален случай: 1 super special edition, 3 special vinyl edition-a и 4 винила/2x2
- + 1 Beyond The Red Mirror(40лв) and 2x2 Demons And Wizards(210лв) = 250 за тези неща и 1150 за оркестралния.
+= в най-минимален случай: 1 super special edition, 3 special vinyl edition-a и 4 винила/2x2,
+1 Beyond The Red Mirror(40лв) and 2x2 Demons And Wizards(210лв) = 250 за тези неща и 1150 за оркестралния.
 
 2-nd Wave = ? = Кредит = макс още 5 винила = още 350 кинта
 
